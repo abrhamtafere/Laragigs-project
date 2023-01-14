@@ -1,0 +1,2 @@
+Thanks to the future time interval from the following time of the next time futuritu of the following of the time next to the future 
+why my typing speed is the same as the worlds best writer in the coming 2 weeks <?php /**PATH C:\xampp\htdocs\firstproject\resources\views/listings/store.blade.php ENDPATH**/ ?>
